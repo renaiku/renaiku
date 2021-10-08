@@ -43,11 +43,6 @@
 ![#f03c15](https://via.placeholder.com/15/7D6EB3/000000?text=+)
 ![#f03c15](https://via.placeholder.com/15/7D6EB3/000000?text=+)
 ![#f03c15](https://via.placeholder.com/15/7D6EB3/000000?text=+)
-![#f03c15](https://via.placeholder.com/15/7D6EB3/000000?text=+)
-![#f03c15](https://via.placeholder.com/15/7D6EB3/000000?text=+)
-![#f03c15](https://via.placeholder.com/15/7D6EB3/000000?text=+)
-![#f03c15](https://via.placeholder.com/15/7D6EB3/000000?text=+)
-![#f03c15](https://via.placeholder.com/15/7D6EB3/000000?text=+)
 
 ![#f03c15](https://via.placeholder.com/15/7D6EB3/000000?text=+)&nbsp;&nbsp;I like Lego bricks&nbsp;&nbsp;
 ![#f03c15](https://via.placeholder.com/15/7D6EB3/000000?text=+)
@@ -87,17 +82,7 @@
 ![#f03c15](https://via.placeholder.com/15/7D6EB3/000000?text=+)
 ![#f03c15](https://via.placeholder.com/15/7D6EB3/000000?text=+)
 ![#f03c15](https://via.placeholder.com/15/7D6EB3/000000?text=+)
-![#f03c15](https://via.placeholder.com/15/7D6EB3/000000?text=+)
-![#f03c15](https://via.placeholder.com/15/7D6EB3/000000?text=+)
-![#f03c15](https://via.placeholder.com/15/7D6EB3/000000?text=+)
-![#f03c15](https://via.placeholder.com/15/7D6EB3/000000?text=+)
-![#f03c15](https://via.placeholder.com/15/7D6EB3/000000?text=+)
 
-![#f03c15](https://via.placeholder.com/15/7D6EB3/000000?text=+)
-![#f03c15](https://via.placeholder.com/15/7D6EB3/000000?text=+)
-![#f03c15](https://via.placeholder.com/15/7D6EB3/000000?text=+)
-![#f03c15](https://via.placeholder.com/15/7D6EB3/000000?text=+)
-![#f03c15](https://via.placeholder.com/15/7D6EB3/000000?text=+)
 ![#f03c15](https://via.placeholder.com/15/7D6EB3/000000?text=+)
 ![#f03c15](https://via.placeholder.com/15/7D6EB3/000000?text=+)
 ![#f03c15](https://via.placeholder.com/15/7D6EB3/000000?text=+)
@@ -128,11 +113,6 @@
 ![#f03c15](https://via.placeholder.com/15/7D6EB3/000000?text=+)
 
 
-![#f03c15](https://via.placeholder.com/15/7D6EB3/000000?text=+)
-![#f03c15](https://via.placeholder.com/15/7D6EB3/000000?text=+)
-![#f03c15](https://via.placeholder.com/15/7D6EB3/000000?text=+)
-![#f03c15](https://via.placeholder.com/15/7D6EB3/000000?text=+)
-![#f03c15](https://via.placeholder.com/15/7D6EB3/000000?text=+)
 ![#f03c15](https://via.placeholder.com/15/7D6EB3/000000?text=+)
 ![#f03c15](https://via.placeholder.com/15/7D6EB3/000000?text=+)
 ![#f03c15](https://via.placeholder.com/15/7D6EB3/000000?text=+)
