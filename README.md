@@ -42,12 +42,10 @@
 ![#f03c15](https://via.placeholder.com/15/7D6EB3/000000?text=+)
 ![#f03c15](https://via.placeholder.com/15/7D6EB3/000000?text=+)
 ![#f03c15](https://via.placeholder.com/15/7D6EB3/000000?text=+)
-![#f03c15](https://via.placeholder.com/15/7D6EB3/000000?text=+)
 
 ### I like Lego bricks
 ### Currently working remote from south France
 
-![#f03c15](https://via.placeholder.com/15/7D6EB3/000000?text=+)
 ![#f03c15](https://via.placeholder.com/15/7D6EB3/000000?text=+)
 ![#f03c15](https://via.placeholder.com/15/7D6EB3/000000?text=+)
 ![#f03c15](https://via.placeholder.com/15/7D6EB3/000000?text=+)
